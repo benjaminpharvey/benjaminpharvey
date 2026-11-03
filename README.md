@@ -9,4 +9,4 @@ Health economics postdoc researcher of preparedness strategies for societal secu
 *   🌍  I'm based in Gothenburg, Sweden
 *   🖥️  See my portfolio at [University of Gothenburg](http://www.gu.se/en/about/find-staff/benjaminpeterharvey)
 *   ✉️  You can contact me at [benjamin.peter.harvey@gu.se](mailto:benjamin.peter.harvey@gu.se)
-*   👥  I'm looking to collaborate on Health economic and priority-setting research
+*   👥  I'm looking to collaborate on health economic and priority-setting research
